@@ -1,1 +1,1 @@
-# Untouchables-Doge
+Untouchables Doge is a decentralized community-driven token that encourages users to partake in the Meme-inspired ecosystem. It marks a crucial point in Decentrazlied finance history as this is the first time the general community can take a creative concept and materialize it in the form of a digital currency and share it with the world.
